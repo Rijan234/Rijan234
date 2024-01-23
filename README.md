@@ -1,3 +1,3 @@
 Jai Nepal ! 
-Myself Rijan Rai, enthusiastic to learn !
+Myself Rijan Rai !
 Email: rijanrai789@gmail.com
